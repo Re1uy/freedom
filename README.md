@@ -292,7 +292,7 @@ VPN作为过去很长一段时间最主流最热门最常用最为人所知的�
   <a href="https://download.91porn001.me/aff-afeFw">8、打开复制链接到手机浏览器下载91APP，不要扫码下载</a><br>
 </details>
 
-# 有些付费资源及资源的提取码，加电报交流群：https://t.me/sxcool1024g
+# 有些付费资源及资源的提取码，加电报交流群：https://t.me/sxcoolg
 [回到顶部](#readme)
 
 
